@@ -1,0 +1,2 @@
+# Scooby-Inu
+Scooby Inu ($SCINU) - A METAVERSE DEFLECTIONARY UTILITY TOKEN  Scooby Inu is a next generation community driven metaverse, gamefi and NFT deflectionary utility token.    ✅ BSC20 Token  ✅ 2% Tax on transactions  ✅ Low tax ✅ Liquidity Locked  💪🏼SCOOBY INU ECOSYSTEM💪🏼  ✍️DEX  ✍️NFT  ✍️Metaverse Game  Join our community to learn about our rebranding efforts and be one of the early birds.   Telegram- https://t.me/scoobyinutoken  Twitter- https://twitter.com/scooby_inu Website : https://www.scoobyinu.tech/  FAIRLAUNCH AT PINKSALE!
